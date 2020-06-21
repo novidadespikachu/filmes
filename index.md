@@ -47,26 +47,42 @@
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/s4nGmEeYpy0zM0UC3QfgOBJJyGa.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>O esquadrão de operações especiais "Hell's Bastards" é enviado para se infiltrar em uma guerra civil para recuperar informações. A unidade logo se vê presa em uma escada sem fim forçada a subir ou morrer. Para sobreviver, eles devem revisitar seus pecados passados, se quiserem escapar.</justify></td></tr></table>
 
-<h3 style="text-align: center; font-size: 20px; border: none">
-  <a href="https://bit.ly/attfilmes" target="_blank" style="text-decoration: none;">
-    🔰 Novidades em filmes 🔰
-  </a>
-</h3>
+<a href="https://bit.ly/pikachufull">
+<img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadedocs">
+<img src="https://tinyurl.com/y9xs5l4t" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidaDesenhos">
+<img src="https://tinyurl.com/y73n4mmf" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadenovelas">
+<img src="https://tinyurl.com/ybrg85o5" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadeinfantil">
+<img src="https://tinyurl.com/y9pkjsed" alt="pikachu">
+<a href="https://bit.ly/novidadesforno">
+<img src="https://tinyurl.com/y8r3h7x2" alt="pikachu">
+</a>
+</a>
+<a href="https://bit.ly/novidadeanimes">
+<img src="https://tinyurl.com/y8tc5v56" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadeshows">
+<img src="https://tinyurl.com/ybdjml82" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadeseries">
+<img src="https://tinyurl.com/y8pbauft" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadelives">
+<img src="https://tinyurl.com/y8ehpr7u" alt="pikachu">
+</a>
+<a href="https://bit.ly/novidadeTV">
+<img src="https://tinyurl.com/ydbcnj3f" alt="pikachu">
+</a>
+<a href="https://bit.ly/pikachufull">
+<img src="https://tinyurl.com/y72vpx8n" alt="pikachu">
+</a>
 
-<h3 style="text-align: center; font-size: 20px; border: none">
-  <a href="https://bit.ly/showsnovidades" target="_blank" style="text-decoration: none;">
-    🔰 Novidades em Shows 🔰
-  </a>
-  </h3>
-  
-<h3 style="text-align: center; font-size: 20px; border: none">
-  <a href="https://bit.ly/downloadkachu" target="_blank" style="text-decoration: none;">
-    🔰 Novidades no forno! 🔰
-  </a>
-</h3>
-
-<h3 style="text-align: center; font-size: 23px; border: none">
-    🔰 Copias não serão toleradas 🔰
-</h3>
 
 <!--Copias não serão toleradas-->
