@@ -5,13 +5,17 @@
  
 ## Segunda, 22 de junho de 2020
 
-<table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><imgsrc="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu) (MrPikachu)</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Burden (2020) - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/xuK6xy04AZknmkD9do4KPafEFge.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - DubladoG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> 122 (2019) - 1080p - DUB/LEG </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/iRmND7pOOYFib83m6SkPFy6hTou.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Durante uma noite sangrenta, um jovem e sua amante estão lutando para não chegar ao hospital, mas para escapar e sobreviver. (MrPikachu) (MrPikachu)</justify></td></tr></table>
+<tr><td><justify>Sinopse:  Durante uma noite sangrenta, um jovem e sua amante estão lutando para não chegar ao hospital, mas para escapar e sobreviver. (MrPikachu)</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Wasp Network: Rede de Espiões (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/72r4uAQGsa8KEv0DB2TpSu31lEB.jpg" alt="Addon Pikachu"></div></td></tr>
@@ -26,12 +30,6 @@
 <table style="width:100%"><tr><th><center><b> Bala Perdida (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/t4mzypFVjY6toyBXAmfrIaWcUXa.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Um mecânico acusado de assassinato precisa encontrar o carro que contém a única prova de sua inocência: a bala do crime.</justify></td></tr></table>
-
-
-<table style="width:100%"><tr><th><center><b> Burden (2020) - 720p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/xuK6xy04AZknmkD9do4KPafEFge.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção</justify></td></tr></table>
-
 
 <table style="width:100%"><tr><th><center><b> Equal Standard (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/p5Gy0pcWSywKyPFtGLMh5paGTIj.jpg" alt="Addon Pikachu"></div></td></tr>
