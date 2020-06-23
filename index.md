@@ -1,7 +1,7 @@
 <!--Copias não serão toleradas-->
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
- <div align="center"><img src="https://tinyurl.com/ycgwmb3x" alt="Addon Pikachu"></div>
+ <div align="center"><img src="https://tinyurl.com/ycgwmb3x" alt="Addon Pikachu"><img src="https://tinyurl.com/y9sk5rrc" alt="Addon Pikachu"></div>
  
 ## Segunda, 22 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Wasp Network: Rede de Espiões (2020) - 1080p - Dublado </b></center></th></tr>
