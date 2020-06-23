@@ -67,7 +67,7 @@
 
 
 <table style="width:100%"><tr><th><center><b> Legacy (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/mMV1s4zuJSHCrkuhZQJLaHbOwEy.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/lgr1agghbDHYobAoyA43JQLYemY.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Durante uma viagem de caça no deserto isolado, um pai e seu filho adolescente adotivo são transformados em presas de agressores desconhecidos. Eles são inesperadamente unidos em sua luta pela sobrevivência por um estranho que revela a verdade perturbadora sobre o pai biológico do filho, um criminoso internacional, e por que esse criminoso enviou assassinos treinados para matar o adolescente. (MrPikachu)</justify></td></tr></table>
 
 
