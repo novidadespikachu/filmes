@@ -26,7 +26,7 @@
 <tr><td><justify>Sinopse:  Joshua French e Thiostolv Moland são aventureiros noruegueses que viajam ao Congo em uma missão importante. No caso de sua conclusão bem-sucedida, os homens receberão uma taxa substancial. No entanto, eles nem conseguiam pensar em quais julgamentos os aguardam em um país estrangeiro. Os homens são acusados   de matar um motorista de táxi que os levou pela cidade. Os policiais prendem os turistas pelo período da investigação. Além disso, depois de algum tempo, eles começam a acusá-los de espionagem. Os amigos poderão provar sua inocência e descobrir a verdade sobre o assassinato?. (MrPikachu)</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> The Closet (2020) - 1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://m.media-amazon.com/images/M/MV5BYmQzYThhNDgtODhiZS00MjMyLWEyYjItYTM4ODY4YjE5ZTAxXkEyXkFqcGdeQXVyMTMzNjU2MA@@._V1_UY148_CR2,0,100,148_.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/o_kFsiGnX1A/maxresdefault.webp" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Depois que a filha de Sang-Won, Yi-Na, desaparece em sua nova casa, um homem misterioso se aproxima dele e diz para ele procurá-la no armário. (MrPikachu)</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - Dublado </b></center></th></tr>
