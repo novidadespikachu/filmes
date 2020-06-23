@@ -5,11 +5,31 @@
  
 ## Segunda, 22 de junho de 2020
 
-<table style="width:100%"><tr><th><center><b> Burden (2020) - 720p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/xuK6xy04AZknmkD9do4KPafEFge.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Jo Pil-ho - O Despertar da Ira (2019) - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/wnG85IpQcWgBRR4Mqcnl0cB2Nvq.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Perseguido obstinadamente por um corregedor, um policial corrupto é forçado a se aliar a uma adolescente rebelde para derrubar uma conspiração. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - DubladoG </b></center></th></tr>
+<table style="width:100%"><tr><th><center><b> Ambulância do Terror - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/YHwlfx0qwIE9nhKhr5Re3hAdD4.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Dois paramédicos chegam ao local de um acidente de carro para transportar uma adolescente ferida para o hospital. No entanto, em vez de levá-la ao hospital, os estranhos a levam para a casa de uma mulher cuja filha acabou de morrer. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> À Prova de Balas 2 (2020) - 720/1080p - DUB/LEG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/iOGxpQtUrjs9WBze13jzAq2ZLD.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Tentando superar o estresse e o ciúme pela esposa atriz, e muitos anos mais jovem, Theo resolve passar uma temporada com ela e a filha num casarão alugado na zona rural da Inglaterra. Mas estranhos fenômenos começam a assombrar a família. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> You Should Have Left (2020) - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/chAGSv4DB9s3fsgULpSZQLN7LgN.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Tentando superar o estresse e o ciúme pela esposa atriz, e muitos anos mais jovem, Theo resolve passar uma temporada com ela e a filha num casarão alugado na zona rural da Inglaterra. Mas estranhos fenômenos começam a assombrar a família. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Congo (2020) - 1080p - DUB/LEG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/9ecYUPsAVKg6Cki2JLDJJfbtri.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Joshua French e Thiostolv Moland são aventureiros noruegueses que viajam ao Congo em uma missão importante. No caso de sua conclusão bem-sucedida, os homens receberão uma taxa substancial. No entanto, eles nem conseguiam pensar em quais julgamentos os aguardam em um país estrangeiro. Os homens são acusados   de matar um motorista de táxi que os levou pela cidade. Os policiais prendem os turistas pelo período da investigação. Além disso, depois de algum tempo, eles começam a acusá-los de espionagem. Os amigos poderão provar sua inocência e descobrir a verdade sobre o assassinato?. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> The Closet (2020) - 1080p - DUB/LEG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://m.media-amazon.com/images/M/MV5BYmQzYThhNDgtODhiZS00MjMyLWEyYjItYTM4ODY4YjE5ZTAxXkEyXkFqcGdeQXVyMTMzNjU2MA@@._V1_UY148_CR2,0,100,148_.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Depois que a filha de Sang-Won, Yi-Na, desaparece em sua nova casa, um homem misterioso se aproxima dele e diz para ele procurá-la no armário. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</justify></td></tr></table>
 
