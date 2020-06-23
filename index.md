@@ -4,6 +4,15 @@
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
  
 ## Segunda, 22 de junho de 2020
+
+<table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><imgsrc="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu) (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> 122 (2019) - 1080p - DUB/LEG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/iRmND7pOOYFib83m6SkPFy6hTou.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Durante uma noite sangrenta, um jovem e sua amante estão lutando para não chegar ao hospital, mas para escapar e sobreviver. (MrPikachu) (MrPikachu)</justify></td></tr></table>
+
 <table style="width:100%"><tr><th><center><b> Wasp Network: Rede de Espiões (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/72r4uAQGsa8KEv0DB2TpSu31lEB.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Espiões cubanos se infiltram em grupos de exilados para deter o terrorismo contra Cuba. O preço a pagar, porém, é alto. (MrPikachu)</justify></td></tr></table>
