@@ -87,9 +87,9 @@
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/lgr1agghbDHYobAoyA43JQLYemY.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Durante uma viagem de caça no deserto isolado, um pai e seu filho adolescente adotivo são transformados em presas de agressores desconhecidos. Eles são inesperadamente unidos em sua luta pela sobrevivência por um estranho que revela a verdade perturbadora sobre o pai biológico do filho, um criminoso internacional, e por que esse criminoso enviou assassinos treinados para matar o adolescente. (MrPikachu)</justify></td></tr></table>
 
-<a href="https://bit.ly/pikachufull">
+<div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
-</a>
+</a></div>
 <a href="https://bit.ly/novidadedocs">
 <img src="https://tinyurl.com/y9xs5l4t" alt="pikachu">
 </a>
@@ -114,15 +114,15 @@
 <a href="https://bit.ly/novidadeseries">
 <img src="https://tinyurl.com/y8pbauft" alt="pikachu">
 </a>
-<a href="https://bit.ly/novidadelives">
-<img src="https://tinyurl.com/y8ehpr7u" alt="pikachu">
+<a href="https://bit.ly/novidadesfilmes">
+<img src="https://tinyurl.com/ydewsb4q" alt="pikachu">
 </a>
 <a href="https://bit.ly/novidadeTV">
 <img src="https://tinyurl.com/ydbcnj3f" alt="pikachu">
 </a>
-<a href="https://bit.ly/pikachufull">
+<div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y72vpx8n" alt="pikachu">
-</a>
+</a></div>
 
 
 <!--Copias não serão toleradas-->
