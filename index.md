@@ -2,7 +2,33 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
- 
+
+  ## Quarta Feira, 24 de junho de 2020
+
+<table style="width:100%"><tr><th><center><b> Driven (2019) - 1080p Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rsVazwpxN5YDOjy1JIGekqP2znd.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse: As noites de Emerson Graham como motorista de táxi estão cheias de aborrecimentos e inconvenientes, mas até hoje à noite, nunca ataques e desaparecimentos. Depois de pegar um passageiro misterioso, sua noite passa do trabalho para a realização de uma missão, pois eles precisam correr contra o relógio para derrotar uma força do mal. O medidor está funcionando. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>  Am Vengeance: Retaliation (2020) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9bn60BiyiQFfnkLvRPZsVsOfl4v.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  O ex-soldado das forças especiais John Gold tem a oportunidade de levar Sean Teague - o homem que traiu sua equipe em sua missão final na Europa Oriental há vários anos - à justiça. Gold alegremente ver Teague morto, mas ele está convencido de ajudar a transportá-lo para uma prisão militar para pagar por seus crimes. Ao longo do caminho, Gold terá que lutar contra a equipe de Teague que está tentando extraí-lo, bem como um franco-atirador aparentemente determinado a matar Teague antes que ele possa ser protegido. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>  Infamous (2020) - 1080p - DUB/LEG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/j57oUw8LIYvjOl0zs3A1A1UqwKH.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Arielle trabalha em um restaurante numa pequena cidade da Flórida. Quando ela se apaixona por um jovem criminoso recentemente suspenso, o arrasta de volta a uma vida de perigo, aprendendo que postar suas façanhas criminosas nas mídias sociais é um caminho fácil para a fama viral. Obcecados com o crescente número de seguidores, eles embarcam em uma aventura perigosa que leva a roubos, perseguições policiais e assassinatos. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>  Assassin's Game (2019) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/5WCNFksq3iI1NVEYIKgp24lpD9i.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  A equipe secreta de assassinos, as Sombras, é posta à prova em um jogo definitivo de sobrevivência. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>  Stairs (2020) - 1080p - DUB/LEG </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/s4nGmEeYpy0zM0UC3QfgOBJJyGa.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  O esquadrão de operações especiais "Hell's Bastards" é enviado para se infiltrar em uma guerra civil para recuperar informações. A unidade logo se vê presa em uma escada sem fim forçada a subir ou morrer. Para sobreviver, eles devem revisitar seus pecados passados, se quiserem escapar. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>  The Clearing (2020) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9GoV8gwMxpI2OrFXtJuyP1xIJ89.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Um pai deve abrir caminho pelo apocalipse zumbi para salvar sua filha. . (MrPikachu)</justify></td></tr></table>
+
 ## Terça Feira, 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Jo Pil-ho - O Despertar da Ira (2019) - 720p - Dublado </b></center></th></tr>
