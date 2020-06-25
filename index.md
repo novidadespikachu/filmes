@@ -4,7 +4,7 @@
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
   ## Quinta Feira, 24 de junho de 2020
-<table style="width:100%"><tr><th><center><b> ## Cujo (1983) - 1080p Dublado </b></center></th></tr>
+<table style="width:100%"><tr><th><center><b> Cujo (1983) - 1080p Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://images.justwatch.com/backdrop/8794478/s1440/cujo" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Cujo, um doce cachorro São Bernardo, é picado por um morcego-vampiro e fica raivoso. A partir de então, ele espalha o terror em uma pequena cidade dos Estados Unidos e faz reféns uma mulher e seu filho, aprisionados dentro de um carro quebrado, sob um calor escaldante, durante horas intermináveis. (MrPikachu)</justify></td></tr></table>
 
