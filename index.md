@@ -3,7 +3,7 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
-  ## Quinta Feira, 24 de junho de 2020
+  ##  Quinta Feira, 24 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Cujo (1983) - 1080p Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://images.justwatch.com/backdrop/8794478/s1440/cujo" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Cujo, um doce cachorro São Bernardo, é picado por um morcego-vampiro e fica raivoso. A partir de então, ele espalha o terror em uma pequena cidade dos Estados Unidos e faz reféns uma mulher e seu filho, aprisionados dentro de um carro quebrado, sob um calor escaldante, durante horas intermináveis. (MrPikachu)</justify></td></tr></table>
@@ -12,7 +12,7 @@
 <tr><td><div align="center"><img src="https://br.web.img2.acsta.net/videothumbnails/18/10/30/20/45/2833312.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justifySinopse:  Depois de ter sido considerado inocente das acusações de tentativa de assassinato de uma ex-paciente, o Dr. Albert Beck (Eric Roberts) recomeça sua vida como professor em uma pequena universidade de medicina. Lá, ele se envolve romanticamente em uma relação proibida com uma aluna, mas as coisas começam a se complicar quando um fantasma de seu passado volta para aterrorizá-lo. (MrPikachu)</justify></td></tr></table>
 
-  ## Quarta Feira, 24 de junho de 2020
+  ##  Quarta Feira, 24 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Driven (2019) - 1080p Legendado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rsVazwpxN5YDOjy1JIGekqP2znd.jpg" alt="Addon Pikachu"></div></td></tr>
@@ -38,7 +38,7 @@
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9GoV8gwMxpI2OrFXtJuyP1xIJ89.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Um pai deve abrir caminho pelo apocalipse zumbi para salvar sua filha. . (MrPikachu)</justify></td></tr></table>
 
-## Terça Feira, 23 de junho de 2020
+##  Terça Feira, 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Jo Pil-ho - O Despertar da Ira (2019) - 720p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/wnG85IpQcWgBRR4Mqcnl0cB2Nvq.jpg" alt="Addon Pikachu"></div></td></tr>
