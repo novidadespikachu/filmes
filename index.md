@@ -3,99 +3,74 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
-## Quinta Feira, 24 de junho de 2020
+## Segunda Feira, 29 de junho de 2020
 
-<table style="width:100%"><tr><th><center><b> Cujo (1983) - 1080p Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://images.justwatch.com/backdrop/8794478/s1440/cujo" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Cujo, um doce cachorro São Bernardo, é picado por um morcego-vampiro e fica raivoso. A partir de então, ele espalha o terror em uma pequena cidade dos Estados Unidos e faz reféns uma mulher e seu filho, aprisionados dentro de um carro quebrado, sob um calor escaldante, durante horas intermináveis. (MrPikachu)</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Agatha e a Maldição de Ishtar (2019) - 1080po </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/lq6Nb8YDB2Lp0w67kgFzKceKvX8.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Faz dois anos desde a sensação causada pelo seu desaparecimento de onze dias e Agatha está pensando em desistir de romances policiais para seguir uma carreira literária séria. Procurando fuga e inspiração, ela viaja para Bagdá em um passeio arqueológico. O que ela encontra é turbulência: o maior campo petrolífero do mundo acaba de ser descoberto e os tesouros antigos do Iraque estão ameaçados. Agatha também encontra um jovem e encantador arqueólogo ingênuo, Max, que precisa de sua ajuda enquanto uma série de assassinatos se desenrola na grandeza desbotada da vila em que estão hospedados. Agatha conheceu seu par?. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Fascinação Mortal: A Vingança (2018) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://br.web.img2.acsta.net/videothumbnails/18/10/30/20/45/2833312.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justifySinopse:  Depois de ter sido considerado inocente das acusações de tentativa de assassinato de uma ex-paciente, o Dr. Albert Beck (Eric Roberts) recomeça sua vida como professor em uma pequena universidade de medicina. Lá, ele se envolve romanticamente em uma relação proibida com uma aluna, mas as coisas começam a se complicar quando um fantasma de seu passado volta para aterrorizá-lo. (MrPikachu)</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Bastard (2019) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w220_and_h330_face/AjNTR7WRJN9SwmNkt4QokwLslGD.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Dois anos após a trágica perda de seu irmão mais velho, Daan, de 17 anos, involuntariamente segue em frente quando sua família enlutada decide dar abrigo a um adolescente sem-teto chamado Radja. Mas, quando Daan testemunha como a presença desse estranho afeta profundamente sua mãe, ele começa a desvendar o passado misterioso de Radja. (MrPikachu)</justify></td></tr></table>
 
-## Quarta Feira, 24 de junho de 2020
+<table style="width:100%"><tr><th><center><b> The Kangaroo Chronicles (2020) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fLkzTCXR8tlboua6mWETnSXVlyj.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Um canguru comunista se muda com um artista em Berlim. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Driven (2019) - 1080p Legendado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rsVazwpxN5YDOjy1JIGekqP2znd.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse: As noites de Emerson Graham como motorista de táxi estão cheias de aborrecimentos e inconvenientes, mas até hoje à noite, nunca ataques e desaparecimentos. Depois de pegar um passageiro misterioso, sua noite passa do trabalho para a realização de uma missão, pois eles precisam correr contra o relógio para derrotar uma força do mal. O medidor está funcionando. (MrPikachu)</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Palm Beach (2019) - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/mvpeUURLVlcACry0o30BmE2hTq6.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Um grupo de amigos se reencontram para comemorar um aniversário especial, com a icônica Palm Beach de Sydney proporcionando um cenário deslumbrante para o drama que se desenrola. Os bons tempos rolam, com muitas gargalhadas, refeições suntuosas, vinho fluindo e música fantástica, mas lentamente aumentam as tensões e surgem segredos profundos.. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>  Am Vengeance: Retaliation (2020) - 1080p - Legendado </b></center></th></tr>
+<table style="width:100%"><tr><th><center><b> Search and Destroy (2020) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/913WVgqCLfT2XTqOcyjfVK1n924.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Quando o arqueiro americano John Cutter falha em salvar uma família mantida refém e perde toda a sua equipe em uma batalha com o famoso negociante de armas ucraniano Igor Rodin, John recebe alta do exército. Três anos depois, ele é abordado por seu antigo general para ir a uma missão privada quando Igor ressurge. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Trolls 2 (2020) - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/qsxhnirlp7y4Ae9bd11oYJSX59j.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  A rainha Poppy (Anna Kendrick) e Branch (Justin Timberlake) fazem uma descoberta surpreendente: há outros mundos Troll além do seu, e suas diferenças criam grandes confrontos entre essas diversas tribos. Quando uma ameaça misteriosa coloca todos os Trolls do país em perigo, Poppy, Branch e seu grupo de amigos devem embarcar em uma jornada épica para criar harmonia entre os Trolls rivais e uní-los contra um mal maior. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Yummy (2019) - 1080p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/wzzsI22DJFqeGMq1jvgEM1xWnXJ.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Yummy é uma orgia de sangue, violência e diversão, na qual um jovem casal viaja a um hospital da Europa Oriental para cirurgia plástica. A jovem quer uma redução de mama. Sua mãe vem para mais um face-lift. Vagando por uma ala abandonada, o namorado tropeça em uma jovem mulher, amordaçada e amarrada a uma mesa de operação; ela é o resultado de um tratamento experimental de rejuvenescimento. Ele a liberta, mas não percebe que acabou de causar o surto de um vírus que transformará médicos, pacientes e sua sogra em zumbis sanguinários. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Baantjer The beginning (2019 - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fABfnFOikIuaCIbKsEfe737BKkz.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Uma remagia da popular série de TV holandesa Baantjer. O detetive novato Jurre de Cock se une à força policial de Amsterdã em 1980, uma semana antes da coroação da nova rainha da Holanda. Depois de encontrar o corpo de um informante desconhecido em um dos canais da cidade, ele e seu parceiro Montijn são empurrados de cabeça para uma conspiração envolvendo posseiros, chefões das drogas belgas e um possível ataque terrorista no dia da coroação. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Breaking Surface (2020) - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9UZEWt1z78nMWmJmpvDaMPcfYSg.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Duas meias-irmãs suecas / norueguesas fazem uma viagem de mergulho de inverno no norte da Noruega, quando ficam presas após um deslizamento de rocha. (MrPikachu)</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> I Am Vengeance: Retaliation (2020) - 720p - DUB/LEG </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9bn60BiyiQFfnkLvRPZsVsOfl4v.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  O ex-soldado das forças especiais John Gold tem a oportunidade de levar Sean Teague - o homem que traiu sua equipe em sua missão final na Europa Oriental há vários anos - à justiça. Gold alegremente ver Teague morto, mas ele está convencido de ajudar a transportá-lo para uma prisão militar para pagar por seus crimes. Ao longo do caminho, Gold terá que lutar contra a equipe de Teague que está tentando extraí-lo, bem como um franco-atirador aparentemente determinado a matar Teague antes que ele possa ser protegido. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>  Infamous (2020) - 1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/j57oUw8LIYvjOl0zs3A1A1UqwKH.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Arielle trabalha em um restaurante numa pequena cidade da Flórida. Quando ela se apaixona por um jovem criminoso recentemente suspenso, o arrasta de volta a uma vida de perigo, aprendendo que postar suas façanhas criminosas nas mídias sociais é um caminho fácil para a fama viral. Obcecados com o crescente número de seguidores, eles embarcam em uma aventura perigosa que leva a roubos, perseguições policiais e assassinatos. (MrPikachu)</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Run with the Hunted (2020) - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/yGUznGn6WtNZXB9B08aes0kOKfG.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Oscar, um jovem garoto, comete um assassinato nobre e é forçado a fugir de sua cidade natal, deixando para trás seu melhor amigo, Loux. Ele foge para a cidade mais próxima, onde é introduzido em uma gangue de crianças ladrões de rua. Sua inocência desaparece quando ele é apresentado ao amor, assassinato e corrupção. 15 anos depois, ele esqueceu seu passado e se tornou o líder desse bando de crianças perdidas. Quando Loux se muda para a cidade em busca de trabalho, ela consegue um emprego com um investigador particular em dificuldades. Tropeçando no relatório de criança desaparecida de Oscar, ela decide encontrar o garoto que salvou sua vida.(MrPikachu) </justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>  Assassin's Game (2019) - 1080p - Legendado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/5WCNFksq3iI1NVEYIKgp24lpD9i.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  A equipe secreta de assassinos, as Sombras, é posta à prova em um jogo definitivo de sobrevivência. (MrPikachu)</justify></td></tr></table>
+<table style="width:100%"><tr><th><center><b> Scare Package (2019) - 720p - Legendado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/zCX6YOoFSf4HU3vDTU2iDeFNJO1.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Chad Buckley é um aficionado por horror e está sozinho. Chad passa seus dias em sua loja de vídeos de gênero discutindo com seu único cliente regular, Sam. Quando um candidato inocente aparece, Chad começa a ensiná-lo sobre as regras do horror e sua loja de vídeos em geral, para grande desgosto de Sam. Durante o processo de embarque de Chad, costuramos dentro e fora de diferentes hilariantes curtas de terror, cada um deles voltado para um conjunto diferente de tropos de terror. À medida que esse novo candidato aprende as cordas, ele começa a suspeitar de algo sinistro no Chade, mas rapidamente descobrimos que ele pode ter um segredo próprio. (MrPikachu) </justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>  Stairs (2020) - 1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/s4nGmEeYpy0zM0UC3QfgOBJJyGa.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  O esquadrão de operações especiais "Hell's Bastards" é enviado para se infiltrar em uma guerra civil para recuperar informações. A unidade logo se vê presa em uma escada sem fim forçada a subir ou morrer. Para sobreviver, eles devem revisitar seus pecados passados, se quiserem escapar. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>  The Clearing (2020) - 1080p - Legendado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9GoV8gwMxpI2OrFXtJuyP1xIJ89.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Um pai deve abrir caminho pelo apocalipse zumbi para salvar sua filha. . (MrPikachu)</justify></td></tr></table>
 
-##  Terça Feira, 23 de junho de 2020
 
-<table style="width:100%"><tr><th><center><b> Jo Pil-ho - O Despertar da Ira (2019) - 720p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/wnG85IpQcWgBRR4Mqcnl0cB2Nvq.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Perseguido obstinadamente por um corregedor, um policial corrupto é forçado a se aliar a uma adolescente rebelde para derrubar uma conspiração. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Ambulância do Terror - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/YHwlfx0qwIE9nhKhr5Re3hAdD4.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Dois paramédicos chegam ao local de um acidente de carro para transportar uma adolescente ferida para o hospital. No entanto, em vez de levá-la ao hospital, os estranhos a levam para a casa de uma mulher cuja filha acabou de morrer. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> À Prova de Balas 2 (2020) - 720/1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iOGxpQtUrjs9WBze13jzAq2ZLD.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Tentando superar o estresse e o ciúme pela esposa atriz, e muitos anos mais jovem, Theo resolve passar uma temporada com ela e a filha num casarão alugado na zona rural da Inglaterra. Mas estranhos fenômenos começam a assombrar a família. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> You Should Have Left (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/chAGSv4DB9s3fsgULpSZQLN7LgN.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Tentando superar o estresse e o ciúme pela esposa atriz, e muitos anos mais jovem, Theo resolve passar uma temporada com ela e a filha num casarão alugado na zona rural da Inglaterra. Mas estranhos fenômenos começam a assombrar a família. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Congo (2020) - 1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/9ecYUPsAVKg6Cki2JLDJJfbtri.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Joshua French e Thiostolv Moland são aventureiros noruegueses que viajam ao Congo em uma missão importante. No caso de sua conclusão bem-sucedida, os homens receberão uma taxa substancial. No entanto, eles nem conseguiam pensar em quais julgamentos os aguardam em um país estrangeiro. Os homens são acusados   de matar um motorista de táxi que os levou pela cidade. Os policiais prendem os turistas pelo período da investigação. Além disso, depois de algum tempo, eles começam a acusá-los de espionagem. Os amigos poderão provar sua inocência e descobrir a verdade sobre o assassinato?. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> The Closet (2020) - 1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/o_kFsiGnX1A/maxresdefault.webp" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Depois que a filha de Sang-Won, Yi-Na, desaparece em sua nova casa, um homem misterioso se aproxima dele e diz para ele procurá-la no armário. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Force of Nature (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> 122 (2019) - 1080p - DUB/LEG </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iRmND7pOOYFib83m6SkPFy6hTou.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Durante uma noite sangrenta, um jovem e sua amante estão lutando para não chegar ao hospital, mas para escapar e sobreviver. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Wasp Network: Rede de Espiões (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/72r4uAQGsa8KEv0DB2TpSu31lEB.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Espiões cubanos se infiltram em grupos de exilados para deter o terrorismo contra Cuba. O preço a pagar, porém, é alto. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> A Vida Extraordinária de David Copperfield (2019) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/b8Pl9bvqJZgcZBIxxbAcaTCFba.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify> Uma nova e distinta visão da obra-prima semi-autobiográfica de Charles Dickens, The Personal History of David Copperfield, ambientada na década de 1840, narra a vida de seu icônico personagem-título enquanto ele navega em um mundo caótico para encontrar seu lugar indescritível. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Bala Perdida (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/t4mzypFVjY6toyBXAmfrIaWcUXa.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Um mecânico acusado de assassinato precisa encontrar o carro que contém a única prova de sua inocência: a bala do crime.</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Equal Standard (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/p5Gy0pcWSywKyPFtGLMh5paGTIj.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>A vida dos policiais de Nova York colide com histórias entrelaçadas de raça, posição, perda e traição.</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Gundala (2019) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/nmHCKQ1GtlPLZVAtBfsYDqVPhPW.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sancaka vive nas ruas desde que seus pais o deixaram. Vivendo uma vida difícil, Sancaka sobrevive pensando em sua própria segurança. Quando a condição da cidade piora e a injustiça se espalha por todo o país, Sancaka deve decidir se ele continua a viver para cuidar de si mesmo ou se elevar para se tornar seu herói oprimido. (MrPikachu)</justify></td></tr></table>
 
-<table style="width:100%"><tr><th><center><b> Legacy (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/lgr1agghbDHYobAoyA43JQLYemY.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Durante uma viagem de caça no deserto isolado, um pai e seu filho adolescente adotivo são transformados em presas de agressores desconhecidos. Eles são inesperadamente unidos em sua luta pela sobrevivência por um estranho que revela a verdade perturbadora sobre o pai biológico do filho, um criminoso internacional, e por que esse criminoso enviou assassinos treinados para matar o adolescente. (MrPikachu)</justify></td></tr></table>
+
+
 
 <div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
