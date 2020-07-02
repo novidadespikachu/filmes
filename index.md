@@ -2,7 +2,8 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
-## quinta-feira, 2 de julho de 2020	
+ 
+##  quinta-feira, 2 de julho de 2020	
 
 <table style="width:100%"><tr><th><center><b>Adú (2020)</b></center></th></tr>	
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/bwXvBFejQFaoXa2TBkZuKPgSjeA.jpg" alt=Addon Pikachu></div></td></tr>	
