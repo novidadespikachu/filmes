@@ -9,7 +9,7 @@
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/bwXvBFejQFaoXa2TBkZuKPgSjeA.jpg" alt=Addon Pikachu></div></td></tr>	
 <tr><td align="justify">Um homem decide se separar, e vai para Moçambique trabalhar em um reservatório natural, e descobre que há muito mais trabalho a fazer do que ele havia previsto.</td></tr></table>
 
-## Segunda Feira, 29 de junho de 2020
+##  Segunda Feira, 29 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Agatha e a Maldição de Ishtar (2019) - 1080po </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/lq6Nb8YDB2Lp0w67kgFzKceKvX8.jpg" alt="Addon Pikachu"></div></td></tr>
