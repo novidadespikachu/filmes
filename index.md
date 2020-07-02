@@ -5,6 +5,12 @@
  
 ##  quinta-feira, 2 de julho de 2020	
 
+<table style="width:100%"><tr><th><center><b>Days of Violence (2020)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/kYakqqv5RO3T2DXJ6AmFz76NYSh.jpg" alt=Addon Pikachu></div></td></tr>
+ 
+<tr><td align="justify">O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção.. (MrPikachu)</td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>Adú (2020)</b></center></th></tr>	
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/bwXvBFejQFaoXa2TBkZuKPgSjeA.jpg" alt=Addon Pikachu></div></td></tr>	
 <tr><td align="justify">Um homem decide se separar, e vai para Moçambique trabalhar em um reservatório natural, e descobre que há muito mais trabalho a fazer do que ele havia previsto.</td></tr></table>
