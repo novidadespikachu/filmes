@@ -2,7 +2,13 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
- 
+
+##	sexta-feira, 3 de julho de 2020
+
+	<table style="width:100%"><tr><th><center><b>Devil's Night: Dawn of the Nain Rouge (2020)</b></center></th></tr>
+	<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/valCu0buhw1FjshGtBypI0SQGSw.jpg" alt=Addon Pikachu></div></td></tr>
+	<tr><td align="justify">A military veteran who returns home, works in law enforcement and she's assigned to a supernatural case that's surrounded by urban myth and legend.</td></tr></table>
+
 ##  quinta-feira, 2 de julho de 2020	
 
 <table style="width:100%"><tr><th><center><b>Days of Violence (2020)</b></center></th></tr>
