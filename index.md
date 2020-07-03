@@ -5,6 +5,11 @@
 
 ##  sexta-feira, 3 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>Os Segredos Obscuros da Minha Mãe (2019)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/onuwBsqy0SGyZwNNgpmZL6XNP6l.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">A jovem Ashley (Nia Roam) finalmente conhece sua mãe biológica, Sara (Laurie Fortier). Porém, passada a empolgação incial do reencontro, Ashley se vê em uma teia de mentiras e decepções envolvendo sua mãe. E, agora, ela já não tem certeza se Sara é inocente ou culpada de um assassinato.</td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>Misbehaviour (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/zydvPSWpaPkWvQBTQfUYGzMpQff.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Sinopse: Um grupo de mulheres interrompeu a cerimônia do Miss Mundo em 1970, em Londres, fazendo uma crítica ao patriarcado, ao padrão estético inalcançável promovido por esse tipo de concurso e à objetificação feminina. O movimento foi muito comentado, mas não foi a única surpresa da noite. Afinal, quem levou o prêmio foi a Miss Granada Jennifer Hosten, a primeira mulher negra a vencer o concurso.</td></tr></table>
