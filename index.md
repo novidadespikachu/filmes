@@ -5,16 +5,9 @@
 
 ##  sexta-feira, 3 de julho de 2020
 
-
-	<table style="width:100%"><tr><th><center><b>Edson</b></center></th></tr>
-	<tr><td><div align="center"><img src="tmdb" alt=Addon Pikachu></div></td></tr>
-	<tr><td align="justify">good</td></tr></table>
-	
-
-
 <table style="width:100%"><tr><th><center><b>Devil's Night: Dawn of the Nain Rouge (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/valCu0buhw1FjshGtBypI0SQGSw.jpg" alt=Addon Pikachu></div></td></tr>
-	<tr><td align="justify">A military veteran who returns home, works in law enforcement and she's assigned to a supernatural case that's surrounded by urban myth and legend.</td></tr></table>
+<tr><td align="justify">A military veteran who returns home, works in law enforcement and she's assigned to a supernatural case that's surrounded by urban myth and legend.</td></tr></table>
 
 
 ##  quinta-feira, 2 de julho de 2020	
