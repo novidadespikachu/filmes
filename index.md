@@ -5,6 +5,10 @@
 
 ##  sexta-feira, 3 de julho de 2020
 
+	<table style="width:100%"><tr><th><center><b>Force of Nature (2020)</b></center></th></tr>
+	<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt=Addon Pikachu></div></td></tr>
+	<tr><td align="justify">Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</td></tr></table>
+	
 <table style="width:100%"><tr><th><center><b>Devil's Night: Dawn of the Nain Rouge (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/valCu0buhw1FjshGtBypI0SQGSw.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">A military veteran who returns home, works in law enforcement and she's assigned to a supernatural case that's surrounded by urban myth and legend.</td></tr></table>
