@@ -5,6 +5,11 @@
 
 ##  sexta-feira, 3 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>Misbehaviour (2020)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/zydvPSWpaPkWvQBTQfUYGzMpQff.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">Sinopse: Um grupo de mulheres interrompeu a cerimônia do Miss Mundo em 1970, em Londres, fazendo uma crítica ao patriarcado, ao padrão estético inalcançável promovido por esse tipo de concurso e à objetificação feminina. O movimento foi muito comentado, mas não foi a única surpresa da noite. Afinal, quem levou o prêmio foi a Miss Granada Jennifer Hosten, a primeira mulher negra a vencer o concurso.</td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>Force of Nature (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</td></tr></table>
