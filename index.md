@@ -5,6 +5,11 @@
 
 ##  sexta-feira, 3 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>Top Gunner (2020)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/voVLyMxB8laS1CCRcbpjBsBJWI.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">Recent graduates of a secluded U.S. Air Force base must protect a gene-editing bioweapon from the Russian military—who are desperate to seize the deadly viral agent at any cost.</td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>The Evil Rises Dublado e Legendado (2018)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/cXruKrrfwQAOJt1Oc3O0UQTjKLf.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Um grupo de jovens amigos descobre uma estátua antiga que libera um espírito maligno que os escraviza a coletar sangue humano para que o espírito maligno possa voltar à vida e governar o mundo. Cabe a um detetive, um padre e um garoto de pizza se infiltrar no complexo sinistro dos grupos para proteger o espírito maligno da terra antes que seja tarde demais. (MrPikachu)</td></tr></table>
