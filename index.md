@@ -6,7 +6,7 @@
 ##  sexta-feira, 3 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>Top Gunner (2020)</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/voVLyMxB8laS1CCRcbpjBsBJWI.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/ccrK9kB6mDJdH3My1yIpBAriyHz.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Recent graduates of a secluded U.S. Air Force base must protect a gene-editing bioweapon from the Russian military—who are desperate to seize the deadly viral agent at any cost.</td></tr></table>
 
 
