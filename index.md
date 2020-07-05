@@ -5,6 +5,11 @@
 
 ##  domingo, 5 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>Desperados Dublado 1080p (2020)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/k8H6Qp4uJ9WHArPQwDqCaW9g3Sj.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">Acompanhada pelos amigos, uma jovem apavorada parte para o México para tentar apagar um e-mail desaforado que enviou ao novo namorado.</td></tr></table>
+
+
 domingo, 5 de julho de 2020
 <table style="width:100%"><tr><th><center><b>Bad Trip (2020) Dublado 1080P</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/Av4DqRXNozEDINopS6GpBiq5bEy.jpg" alt=Addon Pikachu></div></td></tr>
