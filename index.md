@@ -5,6 +5,11 @@
 
 ##  domingo, 5 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>Unlock - The Haunted App legendados (2020)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/z5SMMPznjzt8vXndLe9L8OFQYzY.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">Com Hina Khan, Kushal Tandon, Rishabh Sinha, Aditi Arya. Não seria bom se houvesse um aplicativo que lhe desse seu desejo mais profundo e sombrio em apenas três tarefas.</td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>Lassie - Eine abenteuerliche Reise Dublado (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/hnQJH9mVCARAam1ibrtvQdw0Fi9.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Dirigido por Hanno Olderdissen. Com Sebastian Bezzel, Anna Maria Mühe, Nico Marischka e Bella Bading. Remake do filme de 1943.</td></tr></table>
