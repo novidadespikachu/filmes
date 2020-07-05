@@ -9,11 +9,11 @@
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/aOSDKvqglKVa3SYy4CPXYUAfDlf.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Khalid, é encarregado da tarefa de eliminar Kabir, um ex-soldado que ficou desonesto, enquanto ele se envolve em uma batalha épica com seu mentor, que lhe ensinou tudo.</td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>Unlock - The Haunted App legendados (2020)</b></center></th></tr>
+<table style="width:100%"><tr><th><center><b>Unlock The Haunted App legendados (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/z5SMMPznjzt8vXndLe9L8OFQYzY.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Com Hina Khan, Kushal Tandon, Rishabh Sinha, Aditi Arya. Não seria bom se houvesse um aplicativo que lhe desse seu desejo mais profundo e sombrio em apenas três tarefas.</td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>Lassie - Eine abenteuerliche Reise Dublado (2020)</b></center></th></tr>
+<table style="width:100%"><tr><th><center><b>Lassie  Eine abenteuerliche Reise Dublado (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/hnQJH9mVCARAam1ibrtvQdw0Fi9.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Dirigido por Hanno Olderdissen. Com Sebastian Bezzel, Anna Maria Mühe, Nico Marischka e Bella Bading. Remake do filme de 1943.</td></tr></table>
 
@@ -30,7 +30,7 @@ domingo, 5 de julho de 2020
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/nx1VC0xHv0oflXlZpSWCNYHC68o.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Sinopse: A história real, e que durou mais de trinta anos, de um jovem acusado ... A cada interrogatório, retirados diretamente dos arquivos de verdade do caso.</td></tr></table>
 
-<table style="width:100%"><tr><th><center><b>Fanny Lye Deliver'd Legendado(2019)</b></center></th></tr>
+<table style="width:100%"><tr><th><center><b>Fanny Lye Deliverd Legendado(2019)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/eeAlUt6wpfSW5gfR6N5UmwKqXci.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Fanny Lye (Maxine Peake) vive com John (Charles Dance), seu marido opressor e Arthur (Zak Adams), seu filho.</td></tr></table>
 
@@ -73,9 +73,7 @@ domingo, 5 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>Days of Violence (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/kYakqqv5RO3T2DXJ6AmFz76NYSh.jpg" alt=Addon Pikachu></div></td></tr>
- 
 <tr><td align="justify">O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção.. (MrPikachu)</td></tr></table>
-
 
 <table style="width:100%"><tr><th><center><b>Adú (2020)</b></center></th></tr>	
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/bwXvBFejQFaoXa2TBkZuKPgSjeA.jpg" alt=Addon Pikachu></div></td></tr>	
