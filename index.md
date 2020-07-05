@@ -131,25 +131,6 @@ domingo, 5 de julho de 2020
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/zCX6YOoFSf4HU3vDTU2iDeFNJO1.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Chad Buckley é um aficionado por horror e está sozinho. Chad passa seus dias em sua loja de vídeos de gênero discutindo com seu único cliente regular, Sam. Quando um candidato inocente aparece, Chad começa a ensiná-lo sobre as regras do horror e sua loja de vídeos em geral, para grande desgosto de Sam. Durante o processo de embarque de Chad, costuramos dentro e fora de diferentes hilariantes curtas de terror, cada um deles voltado para um conjunto diferente de tropos de terror. À medida que esse novo candidato aprende as cordas, ele começa a suspeitar de algo sinistro no Chade, mas rapidamente descobrimos que ele pode ter um segredo próprio. (MrPikachu) </justify></td></tr></table>
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 <div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
 </a></div>
