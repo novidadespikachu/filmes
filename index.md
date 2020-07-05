@@ -5,6 +5,12 @@
 
 ##  domingo, 5 de julho de 2020
 
+domingo, 5 de julho de 2020
+<table style="width:100%"><tr><th><center><b>Bad Trip (2020) Dublado 1080P</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/Av4DqRXNozEDINopS6GpBiq5bEy.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">Dois amigos embarcam em uma viagem através do pais, enquanto pregam trotes e outras brincadeiras de gosto duvidoso.</td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>O Interrogatório (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/nx1VC0xHv0oflXlZpSWCNYHC68o.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Sinopse: A história real, e que durou mais de trinta anos, de um jovem acusado ... A cada interrogatório, retirados diretamente dos arquivos de verdade do caso.</td></tr></table>
