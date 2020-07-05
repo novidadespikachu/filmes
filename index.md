@@ -29,6 +29,9 @@ domingo, 5 de julho de 2020
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/eeAlUt6wpfSW5gfR6N5UmwKqXci.jpg" alt=Addon Pikachu></div></td></tr>
 <tr><td align="justify">Fanny Lye (Maxine Peake) vive com John (Charles Dance), seu marido opressor e Arthur (Zak Adams), seu filho.</td></tr></table>
 
+<table style="width:100%"><tr><th><center><b>Girls Just Wanna Have Blood (2020)</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w600_and_h900_bestv2/edDimCw9QxJjswg0H1WGRywHuwS.jpg" alt=Addon Pikachu></div></td></tr>
+<tr><td align="justify">Garotas só querem ter sangue. Quando Jessica é aceita por um trio de vampiros amorosos, ela vê envolvida em uma trama.</td></tr></table>
 
 ##  sexta-feira, 3 de julho de 2020
 
