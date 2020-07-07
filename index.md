@@ -7,77 +7,77 @@
 
 <table style="width:100%"><tr><th><center><b>War Legendado (2019)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/aOSDKvqglKVa3SYy4CPXYUAfDlf.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Khalid, é encarregado da tarefa de eliminar Kabir, um ex-soldado que ficou desonesto, enquanto ele se envolve em uma batalha épica com seu mentor, que lhe ensinou tudo.</<justify></td></tr></table>
+<tr><td><justify>Khalid, é encarregado da tarefa de eliminar Kabir, um ex-soldado que ficou desonesto, enquanto ele se envolve em uma batalha épica com seu mentor, que lhe ensinou tudo.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Unlock The Haunted App legendados (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/z5SMMPznjzt8vXndLe9L8OFQYzY.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Com Hina Khan, Kushal Tandon, Rishabh Sinha, Aditi Arya. Não seria bom se houvesse um aplicativo que lhe desse seu desejo mais profundo e sombrio em apenas três tarefas.</<justify></td></tr></table>
+<tr><td><justify>Com Hina Khan, Kushal Tandon, Rishabh Sinha, Aditi Arya. Não seria bom se houvesse um aplicativo que lhe desse seu desejo mais profundo e sombrio em apenas três tarefas.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Lassie Eine abenteuerliche Reise Dublado (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/hnQJH9mVCARAam1ibrtvQdw0Fi9.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Dirigido por Hanno Olderdissen. Com Sebastian Bezzel, Anna Maria Mühe, Nico Marischka e Bella Bading. Remake do filme de 1943.</<justify></td></tr></table>
+<tr><td><justify>Dirigido por Hanno Olderdissen. Com Sebastian Bezzel, Anna Maria Mühe, Nico Marischka e Bella Bading. Remake do filme de 1943.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Desperados Dublado 1080p (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/k8H6Qp4uJ9WHArPQwDqCaW9g3Sj.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Acompanhada pelos amigos, uma jovem apavorada parte para o México para tentar apagar um e-mail desaforado que enviou ao novo namorado.</<justify></td></tr></table>
+<tr><td><justify>Acompanhada pelos amigos, uma jovem apavorada parte para o México para tentar apagar um e-mail desaforado que enviou ao novo namorado.</justify></td></tr></table>
 
 domingo, 5 de julho de 2020
 <table style="width:100%"><tr><th><center><b>Bad Trip (2020) Dublado 1080P</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/Av4DqRXNozEDINopS6GpBiq5bEy.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Dois amigos embarcam em uma viagem através do pais, enquanto pregam trotes e outras brincadeiras de gosto duvidoso.</<justify></td></tr></table>
+<tr><td><justify>Dois amigos embarcam em uma viagem através do pais, enquanto pregam trotes e outras brincadeiras de gosto duvidoso.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>O Interrogatório (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/nx1VC0xHv0oflXlZpSWCNYHC68o.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Sinopse: A história real, e que durou mais de trinta anos, de um jovem acusado ... A cada interrogatório, retirados diretamente dos arquivos de verdade do caso.</<justify></td></tr></table>
+<tr><td><justify>Sinopse: A história real, e que durou mais de trinta anos, de um jovem acusado ... A cada interrogatório, retirados diretamente dos arquivos de verdade do caso.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Fanny Lye Deliverd Legendado(2019)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/eeAlUt6wpfSW5gfR6N5UmwKqXci.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Fanny Lye (Maxine Peake) vive com John (Charles Dance), seu marido opressor e Arthur (Zak Adams), seu filho.</<justify></td></tr></table>
+<tr><td><justify>Fanny Lye (Maxine Peake) vive com John (Charles Dance), seu marido opressor e Arthur (Zak Adams), seu filho.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Girls Just Wanna Have Blood (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w600_and_h900_bestv2/edDimCw9QxJjswg0H1WGRywHuwS.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Garotas só querem ter sangue. Quando Jessica é aceita por um trio de vampiros amorosos, ela vê envolvida em uma trama.</<justify></td></tr></table>
+<tr><td><justify>Garotas só querem ter sangue. Quando Jessica é aceita por um trio de vampiros amorosos, ela vê envolvida em uma trama.</justify></td></tr></table>
 
 ##  sexta-feira, 3 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>Top Gunner (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/ccrK9kB6mDJdH3My1yIpBAriyHz.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Recent graduates of a secluded U.S. Air Force base must protect a gene-editing bioweapon from the Russian military—who are desperate to seize the deadly viral agent at any cost.</<justify></td></tr></table>
+<tr><td><justify>Recent graduates of a secluded U.S. Air Force base must protect a gene-editing bioweapon from the Russian military—who are desperate to seize the deadly viral agent at any cost.</justify></td></tr></table>
 
 
 <table style="width:100%"><tr><th><center><b>The Evil Rises Dublado e Legendado (2018)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/cXruKrrfwQAOJt1Oc3O0UQTjKLf.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Um grupo de jovens amigos descobre uma estátua antiga que libera um espírito maligno que os escraviza a coletar sangue humano para que o espírito maligno possa voltar à vida e governar o mundo. Cabe a um detetive, um padre e um garoto de pizza se infiltrar no complexo sinistro dos grupos para proteger o espírito maligno da terra antes que seja tarde demais. (MrPikachu)</<justify></td></tr></table>
+<tr><td><justify>Um grupo de jovens amigos descobre uma estátua antiga que libera um espírito maligno que os escraviza a coletar sangue humano para que o espírito maligno possa voltar à vida e governar o mundo. Cabe a um detetive, um padre e um garoto de pizza se infiltrar no complexo sinistro dos grupos para proteger o espírito maligno da terra antes que seja tarde demais. (MrPikachu)</justify></td></tr></table>
 
 
 <table style="width:100%"><tr><th><center><b>Os Segredos Obscuros da Minha Mãe (2019)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/onuwBsqy0SGyZwNNgpmZL6XNP6l.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>A jovem Ashley (Nia Roam) finalmente conhece sua mãe biológica, Sara (Laurie Fortier). Porém, passada a empolgação incial do reencontro, Ashley se vê em uma teia de mentiras e decepções envolvendo sua mãe. E, agora, ela já não tem certeza se Sara é inocente ou culpada de um assassinato.</<justify></td></tr></table>
+<tr><td><justify>A jovem Ashley (Nia Roam) finalmente conhece sua mãe biológica, Sara (Laurie Fortier). Porém, passada a empolgação incial do reencontro, Ashley se vê em uma teia de mentiras e decepções envolvendo sua mãe. E, agora, ela já não tem certeza se Sara é inocente ou culpada de um assassinato.</justify></td></tr></table>
 
 
 <table style="width:100%"><tr><th><center><b>Misbehaviour (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/zydvPSWpaPkWvQBTQfUYGzMpQff.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Sinopse: Um grupo de mulheres interrompeu a cerimônia do Miss Mundo em 1970, em Londres, fazendo uma crítica ao patriarcado, ao padrão estético inalcançável promovido por esse tipo de concurso e à objetificação feminina. O movimento foi muito comentado, mas não foi a única surpresa da noite. Afinal, quem levou o prêmio foi a Miss Granada Jennifer Hosten, a primeira mulher negra a vencer o concurso.</<justify></td></tr></table>
+<tr><td><justify>Sinopse: Um grupo de mulheres interrompeu a cerimônia do Miss Mundo em 1970, em Londres, fazendo uma crítica ao patriarcado, ao padrão estético inalcançável promovido por esse tipo de concurso e à objetificação feminina. O movimento foi muito comentado, mas não foi a única surpresa da noite. Afinal, quem levou o prêmio foi a Miss Granada Jennifer Hosten, a primeira mulher negra a vencer o concurso.</justify></td></tr></table>
 
 
 <table style="width:100%"><tr><th><center><b>Force of Nature (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/jAtO4ci8Tr5jDmg33XF3OZ8VPah.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</<justify></td></tr></table>
+<tr><td><justify>Um policial deve proteger os moradores remanescentes de um prédio no meio de uma evacuação de furacão, enquanto criminosos violentos tentam realizar um misterioso assalto dentro do prédio. (MrPikachu)</justify></td></tr></table>
 	
 <table style="width:100%"><tr><th><center><b>Devil's Night: Dawn of the Nain Rouge (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/valCu0buhw1FjshGtBypI0SQGSw.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>A military veteran who returns home, works in law enforcement and she's assigned to a supernatural case that's surrounded by urban myth and legend.</<justify></td></tr></table>
+<tr><td><justify>A military veteran who returns home, works in law enforcement and she's assigned to a supernatural case that's surrounded by urban myth and legend.</justify></td></tr></table>
 
 
 ##  quinta-feira, 2 de julho de 2020	
 
 <table style="width:100%"><tr><th><center><b>Days of Violence (2020)</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/kYakqqv5RO3T2DXJ6AmFz76NYSh.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção.. (MrPikachu)</<justify></td></tr></table>
+<tr><td><justify>O órfão Mike Berden cresceu sob os auspícios de membros da Ku Klux Klan. O herói se apaixona por uma garota e decide deixar a comunidade. Ex-associados pretendem se vingar de Mike, mas o Rev. Kennedy, que lidera a congregação de afro-americanos, leva o cara, sua namorada e o filho sob sua proteção.. (MrPikachu)</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Adú (2020)</b></center></th></tr>	
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/bwXvBFejQFaoXa2TBkZuKPgSjeA.jpg" alt="Addon Pikachu"></div></td></tr>	
-<tr><td align=<justify>Um homem decide se separar, e vai para Moçambique trabalhar em um reservatório natural, e descobre que há muito mais trabalho a fazer do que ele havia previsto.</<justify></td></tr></table>
+<tr><td><justify>Um homem decide se separar, e vai para Moçambique trabalhar em um reservatório natural, e descobre que há muito mais trabalho a fazer do que ele havia previsto.</justify></td></tr></table>
 
 ##  Segunda Feira, 29 de junho de 2020
 
