@@ -5,6 +5,14 @@
 
 ##	Quarta Feira, 8 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>Os Doze Condenados (1967) Dublado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/5HqaC44DjZhBIXAG02txDyFy4qq.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Um major rebelde e uma fama de resolver as coisas recebe a ordem de entrevistar prisioneiros militares, condenados à morte ou à prazo longo, para uma perigosa missão em troca de perdão. O objetivo é saltar de paraquedas atrás das linhas inimigas e causar estragos para os generais alemães que estarão em uma casa de repouso, na véspera do Dia D.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>A Verdadeira História de Ned Kelly (2020) Dublado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/mPzJOUWOpQd0hy9p1UnBebfG1jZ.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Nesse especial sem filtros, Thiago Ventura faz piada sobre a vida na quebrada, questões sociais e muito mais, mostrando que ações falam mais do que palavras.</justify></td></tr></table>
+
 <table style="width:100%"><tr><th><center><b>Thiago Ventura: POKAS (2020) Dublado</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/4OM41sX5AOC17rQVxnvu65DNNe0.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Nesse especial sem filtros, Thiago Ventura faz piada sobre a vida na quebrada, questões sociais e muito mais, mostrando que ações falam mais do que palavras.</justify></td></tr></table>
