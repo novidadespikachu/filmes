@@ -3,6 +3,40 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  [![HitCount](http://hits.dwyl.com/novidadespikachu/filmes.svg)](http://hits.dwyl.com/novidadespikachu/filmes)
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
+##	Quarta Feira, 8 de julho de 2020
+
+<table style="width:100%"><tr><th><center><b>Thiago Ventura: POKAS (2020) Dublado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/4OM41sX5AOC17rQVxnvu65DNNe0.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Nesse especial sem filtros, Thiago Ventura faz piada sobre a vida na quebrada, questões sociais e muito mais, mostrando que ações falam mais do que palavras.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>The Swing of Things (2020) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/sQocCZOumUvUyHPWkbO8cOtXbth.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify> Um futuro noivo acidentalmente reserva seu casamento e lua de mel em um resort de swingers na Jamaica.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>Die Wolf-Gäng (2020) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/5NBGC5cSa4LeskH785Cuog4RUHf.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Vlad acaba de se mudar e ingressou em uma das escolas mágicas mais famosas do mundo, onde conhece fadas, bruxas, trolls e anões. Ele e seu pai são os primeiros vampiros da cidade, mas ele logo conhece outras crianças especiais.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>Rede de Ódio (2020) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://m.media-amazon.com/images/M/MV5BN2EzZDRiMjgtMzgxOC00ZGM4LWJlOTQtNjUxNzc2MzdhMjIyXkEyXkFqcGdeQXVyMTEwMTY3NDI@._V1_UY268_CR3,0,182,268_AL_.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Um jovem procura um propósito em uma rede de ódio e violência que ele tenta controlar.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>Espíritos na Escuridão (2020) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/bfX9GqWsdSFMtPLr6rAgUxkmL7T.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify> Um ladrão profissional com dívidas de 40 milhões de dólares deve cometer um último golpe - roubar um cassino aéreo futurista cheio dos criminosos mais perigosos do mundo.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>Money Plane (2020) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/qqzzpOLwMKk4FiGutOeH67dryE8.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify> Um ladrão profissional com dívidas de 40 milhões de dólares deve cometer um último golpe - roubar um cassino aéreo futurista cheio dos criminosos mais perigosos do mundo.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>Lection (2019) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/lHBUrlCxgcnJUqiqTA4iTDCTMZJ.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>LECTION é um thriller independente sobre uma eleição local em uma sociedade pós-apocalíptica.</justify></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>nvincible (2020) Legendado</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rTSDy9zFZWMR1b59KlPz1tl1fiT.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>O coronel John Taylor convoca o inventor bilionário Leor Teska para financiar um site secreto em preto, testando a nova nano tecnologia da Teska para aplicações militares, desenvolvida por cientistas. Quando um dos participantes do teste, Brock Cortez, escapa, o chefe de segurança de Teska, Cam Devore recebe a perigosa tarefa de localizá-lo.</justify></td></tr></table>
+
 ##	domingo, 5 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>War Legendado (2019)</b></center></th></tr>
