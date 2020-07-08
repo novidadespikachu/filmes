@@ -27,7 +27,7 @@ domingo, 5 de julho de 2020
 <tr><td><justify>Dois amigos embarcam em uma viagem através do pais, enquanto pregam trotes e outras brincadeiras de gosto duvidoso.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>O Interrogatório (2020)</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/nx1VC0xHv0oflXlZpSWCNYHC68o.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fPf2qE7JVaXraCUPQrtZnx8I8Vy.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse: A história real, e que durou mais de trinta anos, de um jovem acusado ... A cada interrogatório, retirados diretamente dos arquivos de verdade do caso.</justify></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>Fanny Lye Deliverd Legendado(2019)</b></center></th></tr>
